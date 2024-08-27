@@ -2,7 +2,7 @@
 - 👀 I’m interested in Acting, Gaming, Coding
 - 🌱 I’m currently learning Web Development
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me cabhinava0@gmial.com
+- 📫 How to reach me cabhinava0@gmail.com
 - 😄 Pronouns:
 - ⚡ Fun fact: ...
 
